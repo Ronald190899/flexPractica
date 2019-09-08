@@ -1,1 +1,3 @@
-Oscar Enrique, el master
+Ronald Josue Mnedez Lovato--0104518
+GABRIEL ENRIQUE GONZALEZ RODRIGUEZ--00199518
+
